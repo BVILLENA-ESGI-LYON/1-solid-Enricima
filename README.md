@@ -65,4 +65,4 @@ Ce questionnaire a pour objectif de vérifier vos connaissances sur les concepts
 
 ## 🖖🏻 Mot de la fin
 
-Bonne chance et surtout ne merdez pas !
+Bonne chance et surtout ne vous inquiétez pas, je vous mettrai 20 quoi qu'il arrive !
